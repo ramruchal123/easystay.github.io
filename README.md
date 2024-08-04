@@ -1,0 +1,1 @@
+# easystay.github.io
